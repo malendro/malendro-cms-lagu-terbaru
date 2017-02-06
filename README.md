@@ -8,4 +8,3 @@ contact me : malendroh@gmail.com
 
 Support by 
 http://mp3setup77.wapka.mobi/
-http://biruputih.wapka.mobi/
